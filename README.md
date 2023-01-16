@@ -1,6 +1,6 @@
 〝 Eternal greatness exists only within myself!〝 
 
-<img src="https://cdn.discordapp.com/attachments/1010148872640811149/1058072349372583966/Illustration3.png">
+<img src="https://64.media.tumblr.com/e2b7903ccf1e43253c5ca5c7e6a60dd8/2cc593c0de6c4fbc-ad/s2048x3072/4905670e14223086bfc9f23db69d24fdd1dfcd1f.pnj" width="420">
 
 <img src="https://cdn.discordapp.com/emojis/1003023413062926346.png" width="50"> <img src="https://cdn.discordapp.com/emojis/1003023534676774973.png" width="50"> <img src="https://cdn.discordapp.com/emojis/1003023302605930506.png" width="50"> <img src="https://cdn.discordapp.com/emojis/1003023826742947880.png" width="50"> <img src="https://cdn.discordapp.com/emojis/1003023679585787954.png" width="50"> <img src="https://cdn.discordapp.com/attachments/1010148872640811149/1058070671558709379/Illustration5.png" width="50"> <img src="https://cdn.discordapp.com/emojis/1003023679585787954.png" width="50">
 
@@ -24,7 +24,3 @@ That being said, if you kin Diavolo [JJBA] please do not interact.
 ★ 😈 . + < I Love My Friends! ♡ AKA 'The Water' <img src="https://cdn.discordapp.com/emojis/1048816773992022036.gif" width="20">                                                                                                                           
 Sufer, Seth, Sarah, David, Cyan, John, Tessimo, Max, Alexis, Gabs, Zenia, Yevgeni,                                                            
 Diego, Zyad, Sera, Des, Sal, Hale, Lizzy, Guz, Lemon, & Ocean
-
-<img src="https://cdn.discordapp.com/attachments/968487206098444318/1052657700930072606/ciodia_ppp.png" width="300">
-
-Pitter Patter Pop Edit & Cioccolata & Diavolo Manga Colors By Me
