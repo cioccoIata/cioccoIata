@@ -2,8 +2,6 @@
 
 <img src="https://64.media.tumblr.com/e2b7903ccf1e43253c5ca5c7e6a60dd8/2cc593c0de6c4fbc-ad/s2048x3072/4905670e14223086bfc9f23db69d24fdd1dfcd1f.pnj" width="420">
 
-<img src="https://cdn.discordapp.com/emojis/1003023413062926346.png" width="50"> <img src="https://cdn.discordapp.com/emojis/1003023534676774973.png" width="50"> <img src="https://cdn.discordapp.com/emojis/1003023302605930506.png" width="50"> <img src="https://cdn.discordapp.com/emojis/1003023826742947880.png" width="50"> <img src="https://cdn.discordapp.com/emojis/1003023679585787954.png" width="50"> <img src="https://cdn.discordapp.com/attachments/1010148872640811149/1058070671558709379/Illustration5.png" width="50"> <img src="https://cdn.discordapp.com/emojis/1003023679585787954.png" width="50">
-
  💉 ⵌ . About Me . ↓ <img src="https://cdn.discordapp.com/emojis/1048816773992022036.gif" width="20">
   * I go by Diavolo primarily, though I have a name I use for close friends only. 
    * 19, Oct. 9th. He/Him ∙ Bisexual Trans Man
